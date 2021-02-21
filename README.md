@@ -6,7 +6,7 @@ some ideas about me:
 - 🌱 I’m currently learning business analysis;
 - 👯 I’m looking to collaborate on some learning projects;
 - 🤔 I’m looking for help with ... GTD;
-- 💬 Ask me about ...
+- 💬 Ask me about ... anything, better try than not;
 - 📫 How to reach me: ... under construction
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I like pancackes
