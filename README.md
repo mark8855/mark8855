@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-Here are some ideas to get you started:
+some ideas about me:
 
 - 🔭 I’m currently working on exploring different Python modules;
 - 🌱 I’m currently learning business analysis;
